@@ -1,5 +1,4 @@
-### Hi there 👋
-
+HELLO WORLD.JPEG
 
 🚀 Explorador de Segurança Cibernética em Formação | Estudante de Defesa Cibernética na FIAP
 
